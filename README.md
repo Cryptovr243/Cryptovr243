@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Cryptovr243
+- 👀 I’m interested in Gorilla tag / youtube / fortnite
+- 🌱 I’m currently learning how to be a youtuber
+- 📫 How to reach me: my discord https://discord.gg/VvkdtgMcBJ
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: idk
